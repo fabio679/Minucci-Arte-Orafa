@@ -1,1 +1,0 @@
-# Minucci-Arte-Orafa
